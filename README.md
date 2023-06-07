@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **React,Javascript**
 
-- 📫 How to reach me **vermagauravverma841@gmail.com**
+- 📫 How to reach me **vermagaurav171995@gmail.com**
 
 - ⚡ Fun fact **I am funny**
 
